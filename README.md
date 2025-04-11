@@ -6,7 +6,7 @@
 ---
 
 👇 **Click below to visit the official page and start downloading:**  
-🔗 [Download Borbaad (2025) Full Movie](https://todaypublicnewsusa.blogspot.com/2025/04/borbad-full-movie.html)
+🔗 [Download Borbaad (2025) Full Movie]([https://todaypublicnewsusa.blogspot.com/2025/04/borbad-full-movie.html](https://todaypublicnewsusa.blogspot.com/2025/04/borbad-full-movie.html))
 
 ---
 
